@@ -1,0 +1,2 @@
+# latihan-amali
+latihan
